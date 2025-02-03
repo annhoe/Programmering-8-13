@@ -1,1 +1,1 @@
-# Programmering-8-13
+Her legger jeg inn alt til studiet
